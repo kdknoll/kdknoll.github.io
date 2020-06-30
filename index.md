@@ -6,5 +6,8 @@ Im Gegensatz zu den meisten seiner Kollegen ist er ein Interlektueller.
  * Liebhaber Klassischer Musik
  * Kann sich nicht besonders gut Anpassen
  * Beobachtet sehr gut
+ 
+ \"Donnerstag: Frühstückfleich mit Tomaten\"
+ 
 
  
