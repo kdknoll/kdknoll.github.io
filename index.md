@@ -9,7 +9,7 @@ Im Gegensatz zu den meisten seiner Kollegen ist er ein Interlektueller.
  
  > Donnerstag: Frühstückfleich mit Tomaten
  
- <img src="https://encrypted-tbn0.gstatic.com/images?q=tbn%3AANd9GcTKBTV5nEYmd0hpFStgpwMvNk3m4ob3AxdMlA&usqp=CAU">
+ <img src="https://upload.wikimedia.org/wikipedia/commons/thumb/8/81/Evanna_Lynch_acrylic_ink.jpg/800px-Evanna_Lynch_acrylic_ink.jpg">
  
  
  
